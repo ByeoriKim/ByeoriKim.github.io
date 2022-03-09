@@ -1,1 +1,0 @@
-# byeorikim.github.io
